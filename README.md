@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @H-ASHWINI
 - 👀 I’m interested in singing,dacning.
 - 🌱 I’m currently learning in SDMIT
-- �
 - 📫 How to reach me MY E-MAIL address: ashwinih946@gmail.com
 
 <!---
